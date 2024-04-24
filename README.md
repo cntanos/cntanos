@@ -1,4 +1,4 @@
-### Dr. Christos Ntanos
+### Dr Christos Ntanos
 
 📍 **Location:** Athens, Greece
 
